@@ -6,6 +6,10 @@ This is the first meeting for the Fall Term. We have a lot to go over.
 
 ### Tee Shirt Design
 
+### Internship Presentation  
+
+20m  
+
 ### Game Dev Club
 
 Jarrett will be leading this sections
