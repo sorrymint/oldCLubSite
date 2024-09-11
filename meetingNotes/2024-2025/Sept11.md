@@ -87,7 +87,21 @@ This will be talked about in feather details in future meetings. Right now we ju
 	Jaxon Ford 
 	Aiden Conrad
 	Ian Hoffmann
-	Ylyas Movlyamov 
+	Ylyas Movlyamov
+ 	Dakota Garrison
+	Brayan Cova
+	Claire Jaeger
+	Benton Coyle
+	Dawson Pierce
+	Shimea Gbetsi 
+	Isaiah Perez
+	Jerica Hanna
+	Justin Gwinn
+	Keith Roberts
+	Laillah Zainath 
+	Martin Bahena
+	Sam Harris
+	Santiago Olivarez 
 	
 	Alex Cassady
 	Josef Bausch
