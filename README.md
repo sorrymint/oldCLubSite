@@ -1,2 +1,3 @@
- - [Meeting Notes](/meetingNotes/notes.md)
-- []()
+-   [Club Meeting Notes](/meetingNotes/notes.md)
+-   [Game Development Club](/gameDev/)
+-   [Deep Racer](/deepRacer/)

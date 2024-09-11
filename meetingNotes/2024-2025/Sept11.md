@@ -19,6 +19,8 @@ This is the first meeting for the Fall Term. We have a lot to go over.
 
 Jarrett will be leading this sections
 
+<!-- Get Jarrett to put that on this site -->
+
 - His notes go here. 
 
 ### Club Game night
