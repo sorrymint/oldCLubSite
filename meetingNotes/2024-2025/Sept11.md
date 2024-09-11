@@ -61,3 +61,34 @@ This will be talked about in feather details in future meetings. Right now we ju
 
 09/11/2024 12:51:05 PM  Meeting End
 
+### Attendance
+    Daniel Blidchenko 
+	Nixon Thompson
+	Katra Sterner
+	Soliver Pierre 
+	Cody Raines 
+	Jon Clive
+	Collin Scott 
+	Jennifer Opperman
+	Alexander Meiners 
+	Adam Carnicle-Maile
+	Adam Ziv
+	Jaydon Jones
+	Arun Graeff
+	William Long-Collins
+	Kyle Benacka
+	Ethan Durflinger
+	Mike OCarroll
+	Kofi Takpah Souka
+	Garrett Pace
+	Fiori Weldemichae
+	Ashley Abongwa
+	Darsy Sanchez Lopez
+	Jaxon Ford 
+	Aiden Conrad
+	Ian Hoffmann
+	Ylyas Movlyamov 
+	
+	Alex Cassady
+	Josef Bausch
+	Landon Riddick
