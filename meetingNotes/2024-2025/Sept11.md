@@ -4,6 +4,11 @@
 
 This is the first meeting for the Fall Term. We have a lot to go over. 
 
+### Greeting
+
+- Introduce new members to the club and reinforce that this is a student lead org and the more they participate the more fun the club will be
+- Have Club leaders and adviser (Luke) introduce themselves 
+
 ### Tee Shirt Design
 
 ### Internship Presentation  
@@ -17,6 +22,8 @@ Jarrett will be leading this sections
 - His notes go here. 
 
 ### Club Game night
+
+- Get list of games students would want to play. Suggestions will be put into a WIN pull. 
 
 ### Meeting Notes website
 
