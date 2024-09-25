@@ -59,3 +59,33 @@ Notes:
 12:28 PM Game Club Meeting
 Notes:
 - Tuesday @ 3:00
+
+## Attendance
+Kien Nguyen
+Shimea Gbetsi
+Laillah Zainath
+Elijah Weeks
+Tye Felix Huggins
+Dawson Pierce
+Katra Sterner
+Brayan Covarrubias-Segura
+Alexander Meiners
+Daniel Blidchenko
+Alex Cassady
+Meghan Munford
+Ashley Abongwa
+Jaydon Jones
+Landon Riddick
+Justin Gwinn
+Arun Graeff
+Aiden Conrad
+Adam Ziv
+Isaiah Perez
+Clayton Williams
+Garrett Pace
+Jennifer Opperman
+Claire Jaeger
+Collin Scott
+William Collins
+Brenton Coyle
+Guyvani Solokele
