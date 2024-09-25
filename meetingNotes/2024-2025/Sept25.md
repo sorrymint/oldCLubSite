@@ -10,7 +10,7 @@ https://www.indianhills.edu/academics/resources/trio/sss.php
 
 ## Project Management
 
-- This section will be filled with reminders for up coming events for fundraisers. 
+-   This section will be filled with reminders for up coming events for fundraisers.
 -   Reminder if you don't like the food at ByteJam work days you need to bring sack lunch.
 
 ### 8th Grader Day
@@ -22,5 +22,13 @@ https://www.indianhills.edu/academics/resources/trio/sss.php
 ### Pizza ranch
 
 Reminder it is the next day. 26th.
+
+### Game Night
+
+The winner of last meetings vote was.... Java Minecraft. Game night will be on October 29th. We need a volunteer to host the Minecraft server during the event. We expect the server to need to handle a lot of players.
+
+### Game Club
+
+Reminder that Game Club meets every Tuesday at 3pm. All members are invited to come learn game design.
 
 ## Minutes
