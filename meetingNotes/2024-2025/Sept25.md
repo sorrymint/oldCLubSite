@@ -32,3 +32,60 @@ The winner of last meetings vote was.... Java Minecraft. Game night will be on O
 Reminder that Game Club meets every Tuesday at 3pm. All members are invited to come learn game design.
 
 ## Minutes
+
+12:15 PM Meeting Start
+
+12:15 PM Student Support Service Talking
+
+12:23 PM SSS Points:
+Notes:
+- Helps students to succeed throughout classes and school
+- Book Lending
+- Transfer Trips Available
+- Additional Grant Available
+- More Available
+- Down the hall from success center in Art and Science Building
+
+12:24 PM Aiden Speaks About ByteJam
+Notes:
+- Pizza Ranch tip night September 26
+- Can Drive
+- Need a t-shirt design
+
+12:26 PM 8th Grader Day
+Notes:
+- Show up or Talk to Luke
+
+12:28 PM Game Club Meeting
+Notes:
+- Tuesday @ 3:00
+
+## Attendance
+Kien Nguyen
+Shimea Gbetsi
+Laillah Zainath
+Elijah Weeks
+Tye Felix Huggins
+Dawson Pierce
+Katra Sterner
+Brayan Covarrubias-Segura
+Alexander Meiners
+Daniel Blidchenko
+Alex Cassady
+Meghan Munford
+Ashley Abongwa
+Jaydon Jones
+Landon Riddick
+Justin Gwinn
+Arun Graeff
+Aiden Conrad
+Adam Ziv
+Isaiah Perez
+Clayton Williams
+Garrett Pace
+Jennifer Opperman
+Claire Jaeger
+Collin Scott
+William Collins
+Brenton Coyle
+Guyvani Solokele
