@@ -39,5 +39,97 @@ Quick Reminder that Game Club meets every Tuesday at 3pm. All members are invite
 -   Make a Cloud backup. You get 1Tb free with your School OneDrive
 
 ## Minutes
+12:15 PM Meeting Start
+
+12:17 PM Aiden Proposes Vote
+Notes:
+ByteJam Money Spending
+- unanimous 
+
+12:19 PM Money Raised Amount
+Notes:
+- Pop Cans ~ 300
+- Pizza Ranch ~ 270
+
+12:19 PM ByteJam Team
+
+12:21 PM ByteJam Overview
+
+12:23 PM Clayton Discusses Pickleball Club
+
+12:25 PM 8th Grader Day Volunteers
+
+12:25 PM Game Night
+Notes:
+October 29th. 3pm
+
+12:26 PM Game Club Plug
+Notes:
+Room 200
+Every Tuesday 3pm
+
+12:29 PM Luke Preaches Data Backups
+Notes:
+3 Copies
+2 Different Mediums
+1 Offsite
 
 ## Attendance
+Jerica Hanna
+ian Hoffmann
+Nixon Thompson
+Arun Graeff
+Garrett Pace
+Kien Nguyen
+Justin Gwinn
+Jaydon Jones
+Adam Ziv
+Isaiah Perez
+Aiden Conrad
+Syl Carnicle-Maile
+Martin Bahena
+38 responses
+Accepting responses
+of
+1
+Enter First and Last Name
+Jerica Hanna
+ian hoffmann
+Nixon Thompson
+Arun Graeff
+Garrett Pace
+Kien Nguyen
+Justin Gwinn
+Jaydon Jones
+Adam Ziv
+Isaiah Perez
+Aiden Conrad
+Syl Carnicle-Maile
+Martin Bahena
+Meghan Munford
+Jon Cline
+Sam Harris
+brayan Covarrubias
+Alexander Meiners
+Ethan Durflinger
+Claire Jaeger
+Keith Roberts
+Katra Sterner
+Dawson Pierce
+Shimea Gbetsi
+Daisy Sanchez Lopez
+William Collins
+Brenton Coyle
+Daniel Blidchenko
+Caden Epp
+Elijah Weeks
+Kyle Benacka
+Ylyas Movlyamov
+Cody Raines
+Collin Scott
+Laillah Zainath
+fiori weldemichael
+Mike OCarrol
+Alex Cassidy
+Josef Bausch
+Landon Riddick
