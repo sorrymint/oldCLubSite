@@ -54,5 +54,51 @@ Each group needs to meet and complete the following before the event proper:
 The menu for ByteJam, and other details will be sent out next week. Fill out form for next years theme. 
 
 ## Minutes
+12:14 PM Meeting Start
 
+12:16 PM 8th Grader Day
+Notes:
+Oct 25
+
+12:16 PM Game Night
+Notes:
+Oct 29
+Java Minecraft
+
+12:22 PM ByteJam
+Notes:
+Vote For Next Years Theme
+Meet With Teams to Plan Before Event
+
+12:23 PM Meeting End
 ## Attendance
+Meghan Munford
+Jaydon Jones
+Alex Meiners
+Isaiah Perez
+Arun Graeff
+Carson Shively
+Caden Epp
+Adam Ziv
+Brayan Covarrubias
+Teagan Davis
+Kyle Benacka
+Claire Jaeger
+Clayton Ferguson
+Sam Harris
+Shimea Gbetsi
+Garrett Pace
+Alex Cassady (Mr Vice President, big deal i know)
+Dawson Pierce
+Collin scott
+Katra Sterner
+Eric Bollman
+Mike OCarroll
+Jon Cline
+Kien Nguyen
+Justin Gwinn
+Laillah Zainath
+Elijah Weeks
+Daisy Sanchez Lopez
+Landon Riddick
+Josef Bausch
