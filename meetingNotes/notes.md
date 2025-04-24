@@ -8,3 +8,4 @@
 - [October 9th Meeting Notes](./2024-2025/Oct9.md)
 - [October 22th Meeting Notes](./2024-2025/Oct22.md)
 - [April 16th Meeting Notes](./2024-2025/April16.md)
+- [April 30th Meeting Notes](./2024-2025/Apirl30.md)
