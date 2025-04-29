@@ -8,15 +8,15 @@ Weekly meetings to update the club website.
 Learn [jekyllrb](https://jekyllrb.com/).
 Stretch your design muscles. 
 
-Time: 2pm 
-Where: ATC 200
-Day of the week: ???
+* Time: 3pm 
+* Where: ATC 200
+* Day of the week: Tuesday??
 
 ### Game Night
 
-When: April 30th, 3pm
-Where: ATC 200
-What Game: Switch Sports
+* When: May 12th, 3pm
+* Where: ATC 200
+* What Game: Switch Sports
 
 Please bring:
 - Game console and cables. 
@@ -33,10 +33,12 @@ Game Jam?
 ### Field Projects 
 
 This summer six students will take the field projects class. 
-This class mimics a internship (40hrs a week).
+This class mimics an internship (40hrs a week).
 We need your help picking an idea for this class. 
 Project must be able to be completed in 11 weeks by sixth term students. 
 Luke will pitch a few options. 
 Vote on options 
 
+### Next Meeting
 
+June 4rd In Summer term. 
