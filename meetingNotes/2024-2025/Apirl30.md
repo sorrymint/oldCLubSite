@@ -42,3 +42,22 @@ Vote on options
 ### Next Meeting
 
 June 4rd In Summer term. 
+
+
+## Minutes
+
+- Caden talks about meeting for club website
+
+- President talks about game night and game club and everything under the agenda
+
+- President talks about new game club / game jam ???
+
+- Luke talks about game club more
+
+- Luke talks about Field Projects
+    - Idea for projects
+    - Mimics Internship
+
+- Luke talks about Ideas for Field Projects
+
+- Luke closes up meeting.
