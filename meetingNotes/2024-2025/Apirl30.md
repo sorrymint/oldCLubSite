@@ -61,3 +61,31 @@ June 4rd In Summer term.
 - Luke talks about Ideas for Field Projects
 
 - Luke closes up meeting.
+
+### Attendance
+
+Michael	OCarroll,
+Marceline (Kyle)Benacka,
+Clayton	Ferguson,
+Carson	Shively,
+Draven	Livingston,
+Arun 	Graeff,
+Brad	Piatt,
+Trent	Grooms,
+Will	Collins,
+Lucas	Borton,
+Meghan 	Munford ,
+Aiden	Conrad,
+Isaiah	Perez,
+Shimea	Gbetsi,
+Landon	Riddick,
+Katra 	Sterner,
+Collin 	Scott,
+Dawson	Pierce,
+Ethan	Durflinger,
+Claire	Jaeger,
+fiori	weldemichael,
+Lydiann 	Birkner,
+Ashley	Abongwa,
+Laillah	Zainath,
+Ylyas 	Movlyamov
