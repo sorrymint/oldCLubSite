@@ -84,3 +84,7 @@ Below is the schedule for all club meeting for summer term.
 - July 30th
 - August 6th
 
+## Meeting Minutes 
+
+
+## Attendance 
