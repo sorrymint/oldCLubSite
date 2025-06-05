@@ -86,5 +86,40 @@ Below is the schedule for all club meeting for summer term.
 
 ## Meeting Minutes 
 
+Game night ideas:
+- Mario Player 64 on PC Multiplayer
+- Minecraft
 
-## Attendance 
+Caden talks about Club Website
+- Room 200
+- Tuesday
+- 3:00PM
+
+Lucas talks about 2025-2026 CSD Club Meetings
+- New Ideas for events
+- making meetings dates
+- club picnic
+- Game night
+
+Luke talks about Personal Projects and the importance in the job market:
+- look above for agenda
+- Caden talks about his personal project over the summer
+- Clayton talks about his personal project over the summer
+
+Lucas Closees out meeting
+
+
+## Attendance
+Lucas	Borton,
+Mike	OCarroll,
+Clayton	Ferguson,
+Caden	Epp,
+Brad	Piatt,
+Arun 	Graeff,
+Draven	Livingston,
+Shimea	Gbetsi,
+Ethan	Durflinger,
+Ana	Baltazar,
+Laillah	Zainath,
+Ashley	Abongwa,
+Luis	Acuna,
